@@ -1,6 +1,6 @@
 Pinchar en el archivo superior para ver el CV actualizado.
 
-Me llamo Jorge Navarro Pedregal, mi numero de telefono es: +34 658650656 y mi correo es Jnavarropedregal@gmial.com
+Me llamo Jorge Navarro Pedregal, mi numero de telefono es: +34 658650656 y mi correo es Jnavarropedregal+jobs@gmial.com
 
 Estudiante de último año de Farmacia en la Universidad Alfonso X el Sabio, y me dirijo a usted con gran entusiasmo para expresar mi interés en formar parte de su equipo. Mi objetivo es desarrollar mi carrera profesional en el ámbito de la farmacia, aprovechando mis conocimientos y habilidades tanto en gestión farmacéutica como en análisis de datos e inteligencia artificial.
 
